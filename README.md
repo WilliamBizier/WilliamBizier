@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @boobengarten
-- 👀 I’m interested in women
+- 👀 I’m interested in columbian reseach chemicals
 - 🌱 I’m currently learning optimal hypertrophic training 
 - 💞️ I’m looking to collaborate on coding and gains 
 - 📫 How to reach me AMOS: william_bizier
