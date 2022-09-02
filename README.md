@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @boobengarten
+- 👋 Hi, I’m @WilliamBizier
 - 👀 I’m interested in columbian reseach chemicals
-- 🌱 I’m currently learning optimal hypertrophic training 
+- 🌱 I’m currently learning optimal PED enchanced hypertrophic training 
 - 💞️ I’m looking to collaborate on coding and gains 
 - 📫 How to reach me AMOS: william_bizier
 
